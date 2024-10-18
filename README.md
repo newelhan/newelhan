@@ -6,4 +6,4 @@
 - 💬 Ask me about anything really!
 - 📫 How to reach me: Discord (newelhan)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I do calisthenics
+- ⚡ Fun fact: I do Calisthenics
